@@ -2,6 +2,10 @@
 OyVey -Cracked- Test 1.20.4
 Test cracked base oyvey 1.20.4 fabric 
 skid client th 
+ingles:The truth is that I have a problem with this skid. It doesn't have 
+authentication or anything like that, but it will help other people create their client. 
+I took several modules from other clients since no one supports it and I'm not going to waste 
+my time creating one. Well, that's why. I almost never receive updates hahaha, well enjoy what you want =
 
 spanish:
 la verdad tengo paja le ise esta skid a oyvey 
